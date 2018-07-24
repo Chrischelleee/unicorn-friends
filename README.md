@@ -1,4 +1,4 @@
-# FIND YOUR NEW UNICORN BFF
+# FIND YOUR NEW UNICORN BFF :rainbow:
 ## Did you ever want Unicorn friends? This is the perfect app for you!
 
 ### Instructions
